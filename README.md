@@ -2,4 +2,6 @@
 how are you
 copy and paste
 — Disfrútalo!
-https://mega.nz/#F!PDRTGAbB!VQ2EfaKnebpP-d13YqikVQ
+» Sólo una las para mayor
+  seguridad, es la última, en serio.
+— https://ouo.io/eagm0q 
